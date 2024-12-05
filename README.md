@@ -1,19 +1,25 @@
-# About me
-![image](https://github.com/user-attachments/assets/c6c91942-f45b-491d-86d2-8bce1a97c80c) 
+<div align="center">
+    <img ![images (5)](https://github.com/user-attachments/assets/6e6334d6-9f55-4788-be00-d2eeac1d099d)
+</div>
+  
+  ![images (5)](https://github.com/user-attachments/assets/6e6334d6-9f55-4788-be00-d2eeac1d099d)
 
+<div align="center">
+ೄྀ࿐ ˊˎ-
 
-My name is Mika! I'm 16, turning 17 soon. That means i will be 18 in less than a year. People under 12. DNI.
+*mika*&nbsp;&nbsp;&nbsp;&nbsp;.&nbsp;&nbsp;.&nbsp;&nbsp;&nbsp;&nbsp;*16*&nbsp;&nbsp;&nbsp;&nbsp;.&nbsp;&nbsp;.&nbsp;&nbsp;&nbsp;&nbsp;*she/her&nbsp;&nbsp;,&nbsp;&nbsp;they/them*&nbsp;&nbsp;&nbsp;&nbsp;.&nbsp;&nbsp;.&nbsp;&nbsp;**ONLY**
 
-**PLEASE DO NOT INVOLVE ME IN ANY DRAMA. I don't care who you are.**
+</div>
 
-I hide freely,i don't care who you are.
+![image](https://github.com/user-attachments/assets/8c77bcab-ccff-4696-8266-5bc63cd1beaa)
 
-·:*¨༺ ♱✮♱ ༻¨*:·
+*Kiri kin*&nbsp;&nbsp;&nbsp;&nbsp;.&nbsp;&nbsp;.&nbsp;&nbsp;&nbsp;&nbsp;*Ochako kin*&nbsp;&nbsp;&nbsp;&nbsp;.&nbsp;&nbsp;.
 
-I'm mainly seen in the main safe server in mha area.
+˚ · .˚ ༘🦋⋆｡˚
 
-<img src="https://media.tenor.com/MQWnF6nSCSgAAAAM/kiribaku-kirishima.gif" alt="Kiribaku GIF - Kiribaku - Discover &amp; Share GIFs"/>
+*"When I heard that they were after my buddy... I couldn't do anything!! I didnt **DO** anything!! If I don't act now... forget being a hero, I'm not even a man!"*
 
-![image](https://github.com/user-attachments/assets/ebec6c82-cea0-4cf0-9bf8-1165929d5e81)
+*"The cutest&nbsp;&nbsp;&nbsp;&nbsp;.&nbsp;&nbsp;.&nbsp;&nbsp;&nbsp;&nbsp;in the whole world."*
 # my friends
-@stealthluck @ecstacyspace @reversedcurse @Luffeyyer @Drums0flib3ration @suspicioussoup @H34rtS1CK @eliechxnnn 
+[@trafalgar-dono](https://github.com/trafalgar-dono) [@ecstacyspace](https://github.com/ecstacyspace) [@reversedcurse](https://github.com/reversedcurse) [@sanjeyer](https://github.com/sanjeyer) [@Drums0flib3ration](https://github.com/Drums0flib3ration) [@suspicioussoup](https://github.com/suspicioussoup) [@H34rtS1CK](https://github.com/H34rtS1CK) [@eliechxnnn](https://github.com/eliechxnnn)
+
