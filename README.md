@@ -21,6 +21,6 @@
 
 *"The cutest&nbsp;&nbsp;&nbsp;&nbsp;.&nbsp;&nbsp;.&nbsp;&nbsp;&nbsp;&nbsp;in the whole world."*
 # my friends
-[@trafalgar-dono](https://github.com/trafalgar-dono) [@crittercubs](https://github.com/crittercubs) [@reversedcurse](https://github.com/reversedcurse) [@sanjeyer](https://github.com/sanjeyer) [@Drums0flib3ration](https://github.com/Drums0flib3ration) [@suspicioussoup](https://github.com/suspicioussoup) [@H34rtS1CK](https://github.com/H34rtS1CK) [@eliechxnnn](https://github.com/eliechxnnn) [@websh00ter](https://github.com/websh00ter) 
+[@shallingberries](https://github.com/shallingberries) [@crittercubs](https://github.com/crittercubs) [@reversedcurse](https://github.com/reversedcurse) [@sanjeyer](https://github.com/sanjeyer) [@Drums0flib3ration](https://github.com/Drums0flib3ration) [@suspicioussoup](https://github.com/suspicioussoup) [@H34rtS1CK](https://github.com/H34rtS1CK) [@eliechxnnn](https://github.com/eliechxnnn) [@websh00ter](https://github.com/websh00ter) 
 
 
